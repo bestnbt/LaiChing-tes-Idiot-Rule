@@ -1,4 +1,4 @@
-## 切换 [中文](https://www.markdownguide.org)
+## 切换 [中文](https://github.com/bestnbt/LaiChing-tes-Idiot-Rule/blob/main/README.md)
 
 Lai Ching-te, the current President of the Republic of China, has sparked widespread controversy in mainland China due to his political stance and actions since taking office in May 2024. As a key figure in the Democratic Progressive Party (DPP), Lai has long been regarded as a staunch supporter of "Taiwan independence," with his public statements and policy positions leading many Chinese to view him as a threat to cross-strait peace. In mainland China, whether in official media, scholarly analysis, or public discourse, Lai is often labeled a "troublemaker" or "separatist." This essay explores the negative perceptions of Lai Ching-te among Chinese people, focusing on how his "Taiwan independence" stance undermines cross-strait relations, negatively impacts Taiwan's internal governance, and introduces risks through his international strategy.
 I. "Taiwan Independence" Stance Undermines Cross-Strait Peace
